@@ -18,9 +18,8 @@ We want to see more diversity at all levels:
   > developers
 
   > speakers
-  
-  > leaders
 
+  > leaders
 
 
 
