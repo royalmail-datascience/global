@@ -31,5 +31,3 @@ Please get in touch with us through our [Eventbrite page.](https://www.eventbrit
 ### Further information
 
 Checkout our [Eventbrite page](https://www.eventbrite.com/o/royal-mail-17906913052)
-
-Follow us on [Twitter]() we should add a twitter page or handle...
